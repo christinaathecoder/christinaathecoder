@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @christinaadanks
-- 👀 I’m interested in computer programming, building keyboards, algorithms, && of course golf.
+- 👀 I’m interested in computer programming, building keyboards, && pretty much anything tech related.
 - 🌱 I’m currently attending Auburn University. 
 - 💞️ I’m looking to collaborate on any fun projects.
 - 📫 How to reach me christinaa.danks@me.com
